@@ -1,0 +1,1 @@
+1° Ordem do dia; 2° Tolerância de 15 minutos para o atraso; 3° Celular no modo avião: Foco total na missão; 4° Não trazer alimentos para a sala de aula; 5° O início das aulas servirá para revisão do que estudamos anteriormente; 6° Notas 7>=0 e faltas > 75%
